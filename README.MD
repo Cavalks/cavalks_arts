@@ -1,0 +1,2 @@
+# Projeto de artes da _marca_ **Cavalks**
+A arte principal é feita como tributo ao personagem Kowalski que foi a inspiração de um querido professor do ensino médio ao definir este apelido que carrego comigo até hoje.
